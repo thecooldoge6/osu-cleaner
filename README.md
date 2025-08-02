@@ -1,1 +1,1 @@
-![before](https://bei.s-ul.eu/Hu3XZP2l) ![after](https://bei.s-ul.eu/TjC4hKT6) with 160kbps audio, black and white and mono ![ui](https://bei.s-ul.eu/8W2AYz26)
+![before](https://bei.s-ul.eu/Hu3XZP2l) ![after](https://bei.s-ul.eu/TjC4hKT6) with 160kbps audio, black and white and mono ![ui](https://bei.s-ul.eu/8W2AYz26) do not use duplicate shit it is bugged i will fix it later
